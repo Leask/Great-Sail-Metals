@@ -1,4 +1,4 @@
 Great-Sail-Metals
 =================
 
-A business card design demo
+A business card design job.
